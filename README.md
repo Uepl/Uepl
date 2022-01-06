@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Uepl or call me //okokokwwwwwwwwwkwkwkwkhaahhah555555哈哈哈哈哈哈xaxaxakkkkkkkkkjajajahehehehe
 - 👀 I’m interested in
-    //Firewall,OS,and Assembly.
+    //Antivirus,Operation system.
 - 🌱 I’m currently learning
     //Japanese language?
 - 💞️ I’m looking to collaborate on

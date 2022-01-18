@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on
     //No, not looking rn.
 - 📫 How to reach me 
-    //Nah dont tell stranger your mail (gibustedonthai@gmail.com)
+    //Nah dont tell stranger your mail (khunanonk1@yahoo.com)
 
 <!---
 Uepl/Uepl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -6,7 +6,8 @@
 - 💞️ I’m looking to collaborate on
     //No, not looking rn.
 - 📫 How to reach me 
-    //Nah dont tell stranger your mail (khunanonk1@yahoo.com)
+    //Nah dont tell stranger your mail.
+        here my discord Zeisen Faux#7835
 
 <!---
 Uepl/Uepl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
